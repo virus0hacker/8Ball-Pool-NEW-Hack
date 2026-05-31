@@ -1,4 +1,4 @@
-# 8Ball-Pool-NEW-Hack
+# 8Ball-Pool-NEW-Hack 2026
 
 
 # 🔩Hack Features🔩 :
@@ -10,6 +10,7 @@
 ⚠️I played like 8 days no Ban but be careful and don’t use main account..!
 
 
+---
 
 
 
