@@ -1,7 +1,7 @@
 # 8Ball-Pool-NEW-Hack 2026
 
 
-# 🔩Hack Features🔩 :
+# Hack Features🔩 :
 
 ✅Prediction Line > Not Cheto but works Like Cheto.!
 
@@ -14,7 +14,7 @@
 
 
 
-# مميزات الهاك 🔥🤯 :
+# مميزات الهاك 🔩 :
 
 - تنبؤ ESP
 - سهم طويل
